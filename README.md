@@ -1,1 +1,1 @@
-![Accenture Logo](https://upload.wikimedia.org/wikipedia/commons/3/36/Accenture.svg)
+![Accenture Logo](https://commons.wikimedia.org/wiki/File:Tata_logo.svg)
